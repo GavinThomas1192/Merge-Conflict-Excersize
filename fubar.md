@@ -10,3 +10,6 @@ Lorem ipsum dolor sit amet, consectetur adipisicing elit, sed do eiusmod tempor 
 I love to code it is so fun and cool and everyone is the best I love to be around my new coding friends.
 
 I want to sleep!
+MY NAME IS TED I ONLY USE CAPS WHEN I TYPE SHIT
+I love to code it is so fun and cool and everyone is the best I love to be around my new coding friends. 
+
